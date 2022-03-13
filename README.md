@@ -25,8 +25,8 @@ Crédito a todos os membros do Projeto:
 ° PEDRO HENRIQUE PEREIRA RODRIGUES,
 ° RYAN CASTRO FERREIRA.
 </pre>
-<b>LinkdIn </b>- https://www.linkedin.com/in/ryan-castro-ferreira/ <br>
-<b>Email </b>- ryancasf@gmail.com <br> <br>
+<b>LinkdIn </b>- www.linkedin.com/in/pedro-henrique-pereira-rodrigues-3221ab15a <br>
+<b>Email </b>- ph17092003@gmail.com <br> <br>
 
 <p><b>Apresentação e Fontes</b><br>
 Para ter acesso completo a Documentação do projeto clique <a href="https://drive.google.com/file/d/1aTZbS0YBQOecufmyb3bAIUYoDaDMsEES/view?usp=sharing">aqui.</a> <br>
